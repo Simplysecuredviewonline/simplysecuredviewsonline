@@ -1,2 +1,0 @@
-# simplysecuredviewsonline
-Website
